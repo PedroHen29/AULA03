@@ -1,1 +1,1 @@
-Página inicial
+Bem vindo(a)
